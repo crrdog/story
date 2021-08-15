@@ -1,2 +1,3 @@
 once upon a time in a forest there lived a monkey who recided on a berry tree which was on b=banks of a river. In the same the forest lived the crocodile
-and his wife.
+and his wife.One day crocodile came to river and rested under a tree and the kind hearted monkey offered him some fruits. The crocodile came back the next day for more fruits as he loved them.
+As days passed by monkey and crocodile bcame good friends,
